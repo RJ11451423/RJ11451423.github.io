@@ -1,4 +1,4 @@
-# RJ11451423的个人博客 :link: https://RJ11451423.github.io 
+# RJ11451423的个人博客 :link: https://RJ11451423.dpdns.org 
 ### :page_facing_up: [1](https://RJ11451423.github.io/tag.html) 
 ### :speech_balloon: 0 
 ### :hibiscus: 12 
